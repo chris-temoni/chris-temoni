@@ -13,14 +13,3 @@
  📫 How to reach me: github
  
  ⚡ Fun fact: play darts 
- 
- ## Activities for Sprint 1
- 
- ![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/21b7ae74-eec7-4972-9ab6-58e343cf7fce)
-
- 
- 
- 
- 
- 
-
