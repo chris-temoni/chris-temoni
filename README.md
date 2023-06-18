@@ -13,4 +13,13 @@
  📫 How to reach me: github
  
  ⚡ Fun fact: play darts 
+ 
+ ## Activities for Sprint 1
+ 
+ 
+ 
+ 
+ 
+ 
+ 
 
