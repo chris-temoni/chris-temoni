@@ -12,4 +12,4 @@
  
  📫 How to reach me: github
  
- ⚡ Fun fact: play darts 
+ ⚡ Fun fact: Gamer 
