@@ -177,3 +177,8 @@
 ![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/d51b95f4-2ee3-4511-ab6a-82f9f554c12f)
 
 ![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/063156a1-a691-4481-9d90-fc1b551acd0a)
+
+**Confirm that the blog is working on web browser**
+
+![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/1212ed33-1bc8-45f2-918e-b54db9ec3f15)
+
