@@ -109,8 +109,6 @@
 
 ![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/693dea12-9ae0-467f-af18-23c38ba2864a)
 
-![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/414528e2-93e7-46ef-b374-7494d3692b67)
-
 ![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/bdeae893-f58e-452f-8ed4-0ec32eaf591e)
 
 ![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/e364f814-dca0-4729-92f4-220616a89dab)
