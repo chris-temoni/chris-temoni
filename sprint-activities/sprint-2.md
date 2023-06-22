@@ -113,3 +113,27 @@
 
 ![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/e364f814-dca0-4729-92f4-220616a89dab)
 
+![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/d669e413-2288-4552-a7b1-ec9151b2cc45)
+
+![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/80960bf2-0cc0-4e0f-b7a6-7723b4630e37)
+
+![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/13ecfc67-01c8-4d6a-9eae-a1780dfca454)
+
+![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/fb3cea0d-d341-4750-90b0-1852d76df51f)
+
+![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/a517bbfc-f179-47c8-8aac-73757df679fd)
+
+![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/b7a17e8a-ee9c-49e0-a27f-0b1148eb08f6)
+
+![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/d907dcb9-a192-4e02-b58c-dcd6bfab4d52)
+
+![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/647e26bc-5fc4-4afd-94c0-fb315e017ce4)
+
+![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/fed06bd0-fa1c-48e6-a27a-b95b23da055e)
+
+![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/13e49d0a-df96-42aa-96c1-9c856bb055e7)
+
+![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/94e4d4ae-e944-4003-9c5c-7bc4ab912888)
+
+![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/7b0c3eeb-b81e-4fb3-870b-c8d27cb31bed)
+
