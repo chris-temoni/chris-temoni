@@ -270,3 +270,12 @@
 ![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/2bd5091e-dca6-4264-a05e-e02f8bbdebd9)
 
 ![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/c82ef957-ae1b-4c49-8229-f008caebd385)
+
+![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/176d0dca-fd69-4665-9fc4-a6c4d3f811a1)
+
+![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/bef21fc1-bc36-4098-be95-82518b4c7d4b)
+
+![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/0705aa1b-ef9c-4962-9ef1-98e87e1ae6d7)
+
+![image](https://github.com/chris-temoni/chris-temoni/assets/61665260/1551a3d4-df73-41b4-980c-19d0a0a98e8d)
+
